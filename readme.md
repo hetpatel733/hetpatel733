@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working in Information Technology Field<br>mainly intrested in blockchain and web3 space and I'm also currently learning about it<br>I'm good at learning new stuff quickly
+I'm currently working in Information Technology Field<br>Mainly intrested in blockchain and web3 space and I'm also currently learning about it<br>I'm good at learning new stuff quickly
 
 
 ## 🌐 Socials:
